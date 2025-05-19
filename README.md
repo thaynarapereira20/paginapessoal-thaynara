@@ -1,1 +1,0 @@
-# paginapessoal-thaynara
